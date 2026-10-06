@@ -1,2 +1,0 @@
-# Felicia Adekanye — Portfolio
-
